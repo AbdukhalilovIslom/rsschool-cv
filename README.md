@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://abdukhalilovislom.github.io/rsschool-cv/cv
